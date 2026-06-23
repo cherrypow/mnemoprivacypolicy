@@ -42,7 +42,7 @@ If Mnemo's data practices change in the future (for example, if we introduce an 
 
 If you have questions about this Privacy Policy, please contact us at:
 
-**Email:** [carsonoevanso@gmail.com]
+Email: [mnemomemory@proton.me]
 
 ---
 
